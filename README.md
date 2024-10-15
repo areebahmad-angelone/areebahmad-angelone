@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... FUTURE ROCKET
 - 📫 How to reach me ... LINKEDIN
 - 😄 Pronouns: ... HE-MAN
-- ⚡ Fun fact: ... DOREMON
+- ⚡ Fun fact: ... DOREMON IS A CAT ROBO
 
 <!---
 areebahmad-angelone/areebahmad-angelone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
