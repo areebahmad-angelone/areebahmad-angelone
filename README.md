@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @areebahmad-angelone
 - 👀 I’m interested in ... TECH
-- 🌱 I’m currently learning ... GO LANG
+- 🌱 I’m currently learning ... HEAVEN
 - 💞️ I’m looking to collaborate on ... FUTURE ROCKET
 - 📫 How to reach me ... LINKEDIN
 - 😄 Pronouns: ... HE-MAN
